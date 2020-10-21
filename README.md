@@ -20,7 +20,7 @@ Yes, after a few months we finally found the answer. Sadly, Mike is on vacations
 
 10.12下午
 
-![](img\美林logo.png)
+
 
 
 
